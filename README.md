@@ -9,3 +9,6 @@ As the common handout replacement for refreshment
 
 * random wawa dispensing wooden 1mm coffee stirrers instead of common red plastic coffee stirrers
 ![s1](https://raw.githubusercontent.com/c4pt000/wooden-fork-save-plastic/main/IMG_20220106_205446178_HDR.jpg)
+
+# random 7-11s could use it also
+![s1](https://raw.githubusercontent.com/c4pt000/wooden-fork-save-plastic/main/IMG_20220107_112921709_HDR.jpg)
